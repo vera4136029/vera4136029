@@ -5,6 +5,7 @@
 ✅Join axelar [discord](https://discord.gg/axelar)
 
 ✅ [Aigisos](https://quest.intract.io/quest/6764267cb4c9cfdac86ec3e7)
+❌ Pryzm.zone
 
 BrowSec - Singappor
 
